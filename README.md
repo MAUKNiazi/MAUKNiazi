@@ -1,0 +1,4 @@
+-> 👋 Hi, I’m @MAUKNiazi
+-> 👀 I’m interested in game making
+->🌱 I’m currently learning scratch courses
+-> i want to learn coding
